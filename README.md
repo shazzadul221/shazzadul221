@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shazzadul221
-- 👀 I’m interested in phyton, php, digi market
+- 👀 I’m interested in WordPress,phyton, php, digi market
 - 🌱 I’m currently learning phyton
 - 💞️ I’m looking to collaborate on phyton
 - 📫 How to reach me mdpiash221@gmail.com
